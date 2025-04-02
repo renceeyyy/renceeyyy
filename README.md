@@ -16,7 +16,7 @@ Cybersecurity things and UI/UX Design, but it's better if you have a challenge f
 
 📫 How to reach me:
 Facebook Account: Lorence Baldesco
-Gmail Account: rence.baldesco17@gmail.com
+Gmail Account: lorencebaldesco17@gmail.com
 
 🎯 GOAL
 My goal is to enhance my skills and make it in reality all my futuristic ideas in my mind. BLASS OFF in every achievement!
